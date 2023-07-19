@@ -26,4 +26,4 @@
 [Hegemony: Lead your Class to Victory](https://www.boardgamegeek.com/boardgame/345088)\
 [It's a Wonderful World](https://www.boardgamegeek.com/boardgame/345088)\
 [Kemet: Blood and Sand](https://www.boardgamegeek.com/boardgame/297562)\
-[Millennium Blades](https://www.boardgamegeek.com/boardgame/151347)\
+[Millennium Blades](https://www.boardgamegeek.com/boardgame/151347)
